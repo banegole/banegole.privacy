@@ -85,3 +85,5 @@ How To Contact Us
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
 banegole.yc@gmail.com
+
+Last Edited on  Sep 20, 2018
